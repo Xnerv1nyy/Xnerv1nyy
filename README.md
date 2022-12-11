@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Xnerv1nyy
-- 👀 I’m interested in Cheats?
+- 👀 I’m interested in programs?
 - 🌱 I’m currently learning School
 - 💞️ I’m looking to collaborate on letovsky
 - 📫 How to reach me VK: https://vk.com/geroinavayasmaskaetogeroinyi_krd
